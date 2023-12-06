@@ -7,4 +7,5 @@ From there it was easy, I followed the river upstream and I got to Bregenz, whic
 There I started crossing the Alps on the famous trans-alpine stretch of the E5 trail. The day before crossing into Italy at Passo del Rombo, I climbed up to 2,995 m at the Pitztalerjochl. 
 I went down the Val Passiria to Merano, then Val d'Adige to Trento, and Valsugana to Bassano del Grappa. Two days in the scorching heat of the Po Valley and I was in Venice.
 
-![Alt text](images/Canterbury-Venice A4.jpg)
+![Alt text](images/Canterbury-Venice%20A4.jpg)
+
